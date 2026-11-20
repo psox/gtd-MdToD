@@ -1,3 +1,3 @@
 # gtd-MdToD
 
-![Get-IT-Done](jpg)
+![Get-IT-Done](black-and-white-bust.jpg)
